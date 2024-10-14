@@ -25,7 +25,9 @@ es un gusto para mi que hallas pasado por aca, si te gusto mi perfil puedes cont
 
 
 manueldram.01@gmail.com
+
 https://www.linkedin.com/in/manuel-ramos-51648b2ba/
+
 celular: +57 3242417836
 
 <!--
